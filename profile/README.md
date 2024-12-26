@@ -1,2 +1,3 @@
-## 💾BC.DB
-![8MOtoKX](https://github.com/user-attachments/assets/3ff831a3-f236-4662-a475-25716c54b566)
+<h1 align="center">💾</h1>
+
+![pointless](https://github.com/user-attachments/assets/dd695dd9-3dba-415e-883c-c960134b16f3)
